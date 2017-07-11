@@ -1,4 +1,4 @@
-4 	Käse (Handkäse)
+4 	Kochkäs
 8 EL	Apfelessig
 4 EL	Apfelwein
 4 EL	Sonnenblumenöl
