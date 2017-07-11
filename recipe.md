@@ -1,8 +1,9 @@
 4 	Käse (Handkäse)
-8 EL	Essig
+8 EL	Apfelessig
 4 EL	Apfelwein
-4 EL	Öl
+4 EL	Sonnenblumenöl
 4 	Zwiebeln (gewürfelt)
+1/2 TL Senf
 
 Arbeitszeit: ca. 10 Min. / Schwierigkeitsgrad: simpel
 
